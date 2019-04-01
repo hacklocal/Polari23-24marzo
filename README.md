@@ -1,5 +1,6 @@
-# Polari23-24marzo
-Polari group
+# AgoRè
+
+Nome team: Polari (composto da Luca, Fabio e Giacomo)
 
 Le slide sono state fatte su prezi:
 
